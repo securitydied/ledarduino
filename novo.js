@@ -1,4 +1,5 @@
-hacked by diparis
+hackeado por diparis e jotinha sagaz
 
-salve jotinha
+eu ligo?
+  
 tropa do engole linguiça hahahahahahaha
