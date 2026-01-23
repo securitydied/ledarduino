@@ -1,3 +1,1 @@
-hacked by diparis
-
-salve ruvik :)
+hacked by diparis - legends never die.
