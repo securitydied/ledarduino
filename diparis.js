@@ -1,3 +1,4 @@
-hackeado por diparis
+hacked by diparis & kiwi 
 
-salve raul igaming :)
+High DA/PA shell shop
+https://t.me/kiwiwishop
